@@ -1,0 +1,2 @@
+# saldirivds
+SALDIRI YAPICAĞIM VDS
